@@ -7,6 +7,6 @@ WHAT is rbxflipwinnerV2?
 
 WHY does it say virus?
 
-Please listen it is false it is bc it goes to you brower and see 
+Please listen it is false it is bc it goes to your brower and see 
 
 and windows think that is a virus!
